@@ -2,4 +2,4 @@
 - 👀 I’m interested in Software Rerverse enginering, Game Cheating.
 - 🌱 I’m currently learning C# and C/C++
 - 💞️ I’m looking to collaborate on other peoples Projects
-- 📫 you can contact me through my Discord m7alex2#1990 :)
+- 📫 you can contact me through my Discord m7alex2#1001 :)
